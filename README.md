@@ -1,4 +1,4 @@
-# Hitachi Power India[NSE](https://g.co/kgs/vSoJCr)
+# Hitachi Power India [NSE](https://g.co/kgs/vSoJCr)
 
 <p> Hitachi ABB Power Products’ Indian arm APPSIL is a global technology leader with a combined heritage of almost 250 years, employing
 around 36,000 people in 90 countries. Headquartered in Switzerland, the business serves utility, industry, and infrastructure customers
